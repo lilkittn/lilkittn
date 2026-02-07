@@ -35,3 +35,8 @@
 𝘛𝘏𝘈𝘕𝘒 𝘠𝘖𝘜 𝘍𝘖𝘙 𝘙𝘌𝘈𝘋𝘐𝘕𝘎♡♡
 ![bb7355409627e8bbc2b065b97e0f3271](https://github.com/user-attachments/assets/3a450d41-5ec8-4adb-b5ed-6f5838bee19e)
 
+![tumblr_mzx9nbiLiO1snc5kxo1_1280](https://github.com/user-attachments/assets/9eef1d03-6f25-4e08-8ccd-9db19c391643)
+![8d36670d383bc42832928051429a1151](https://github.com/user-attachments/assets/1b36dd60-3d92-463b-9186-51468f17786d)
+
+
+
