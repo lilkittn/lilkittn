@@ -38,7 +38,7 @@
 
 ╰────────────────── · · ୨୧ · · ──────────────────╯
 
-°‿‿𝗠𝘆𝗗𝗶𝘀𝗰𝗼𝗿𝗱;𝗆𝗂𝗋𝖺𝗂𝗅𝗒𝟤
+°‿‿𝗠𝘆𝗗𝗶𝘀𝗰𝗼𝗿𝗱;𝗆𝗂𝗋𝖺𝗂𝗅𝗒1
 
 ᕯ➶︎
 ![tumblr_mzx9nbiLiO1snc5kxo1_1280](https://github.com/user-attachments/assets/9eef1d03-6f25-4e08-8ccd-9db19c391643)
