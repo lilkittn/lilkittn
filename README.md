@@ -1,2 +1,1 @@
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=BA54F7&background=C03DFF00&center=true&vCenter=true&repeat=false&width=435&height=40&lines=WELCOME+TO+MY+PAGE+;SO+MY+FAVORITE+IS+BLAZE+THE+CAT+;I+LOVE+MY+FRIENDS+N+MY+SIS)](https://git.io/typing-svg)
-  <img width="430" height="350" alt="81496a4fac98b204ed7b166e9bfbcdea" src="https://github.com/user-attachments/assets/37cd0721-9e7c-4fc0-bb98-de5c200bc4a4" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Blaze&size=24&duration=4000&pause=1000&color=B05AF7&center=true&vCenter=true&width=499&height=30&lines=welcome+to+my+page;so+I+love+my+friends+N+my+sis;and+too+I+love+make+friends;do+you+want+be+friend%3F+)](https://git.io/typing-svg)
