@@ -7,7 +7,7 @@
 
 
 
- ▹Miretti@pronouns.pageೀ
+ Miretti@pronouns.page
 
 
 
