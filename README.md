@@ -5,3 +5,9 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312nnmtw4hqeq22tvpnpovv57zru&cover_image=true&theme=novatorem&show_offline=false&background_color=b8bad9&interchange=true&profanity=false&hide_remaster=false&bar_color=a770cf&bar_color_cover=true">
   </a>
 </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312nnmtw4hqeq22tvpnpovv57zru&cover_image=true&theme=novatorem&show_offline=false&background_color=b8bad9&interchange=true&profanity=true&hide_remaster=false&bar_color=a770cf&bar_color_cover=true">
+  </a>
+</p>
